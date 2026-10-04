@@ -8,6 +8,7 @@ Students move through **Plan → Practise → Develop → Draft → Review → R
 
 ### Pathway 1: Biographical article
 
+- Complete the required UO 1.g school-magazine biography/profile task or select a teacher-approved practice variation.
 - Select a central angle and relevant milestones.
 - Order an engaging school-magazine article.
 - Develop factual details into evidence of character, achievement or influence.
@@ -16,11 +17,14 @@ Students move through **Plan → Practise → Develop → Draft → Review → R
 
 ### Pathway 2: Opinion essay
 
+- Choose independently from six UO 2.h volunteering questions, two TED-IELTS transfer challenges or a teacher-approved custom task.
 - Mine the supplied British Council C1 model for organisation and argument strategy.
 - Complete source-based vocabulary, true/false, linking and tentative-language practice.
 - Build a focused thesis and a developed body paragraph.
 - Practise linker meaning, SVA, verb forms, word order and spelling.
 - Draft, self-review and revise an original essay about volunteering.
+
+Both main writing studios save the selected task and draft together. Downloaded text files include the chosen question above the student response, plus students record one product strength, one improvement area and one practical revision.
 
 ## Standards mapping
 
